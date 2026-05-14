@@ -1,4 +1,4 @@
-#  
+#  secure Script for restaurant tycoon 3 is the best restaurant tycoon 3 Script, featuring infinite resources and instant win. Safe and powerful for all
 
 
 
